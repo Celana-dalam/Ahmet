@@ -1,0 +1,2 @@
+# Ahmet
+Hancurnya sebuah kekayaan 
